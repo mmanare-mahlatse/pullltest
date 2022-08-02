@@ -10,3 +10,4 @@ Feel free to add your (polite) message of joy and relief below:
 - hello everyone this is Tariro
 - Hi, I'm Tebello and I have made it this far.
 - hi its nabeel
+- Hi , I am Claudio and Tariro helped me make it this far
